@@ -1,0 +1,2 @@
+# Astra.kz
+Astra.kz
